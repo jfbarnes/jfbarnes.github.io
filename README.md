@@ -1,1 +1,0 @@
-# jfbarnes.github.io
